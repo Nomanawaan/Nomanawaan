@@ -15,7 +15,7 @@
 
 💞️ I’m looking to collaborate on:  
 
-- Open-source projects in AI   
+- Open-source projects in AI
 - Any project that challenges and helps me grow  
 
 📫 How to reach me:
